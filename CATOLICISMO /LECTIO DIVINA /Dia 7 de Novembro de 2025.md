@@ -25,4 +25,4 @@ Mt 28:20b
 "Eis que estou convosco todos os dias, até o fim dos tempos"
 
 Viva ao Cristo Rei nas alturas e paz na terra pelos homens por ele amado!
-![](attachments/https://i.pinimg.com/1200x/6c/21/fa/6c21fad728113137dbfca20a9a31d3b6.jpg)
+![](https://i.pinimg.com/1200x/6c/21/fa/6c21fad728113137dbfca20a9a31d3b6.jpg)
