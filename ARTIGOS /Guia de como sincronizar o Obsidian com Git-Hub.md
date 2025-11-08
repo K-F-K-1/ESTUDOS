@@ -77,4 +77,4 @@ git clone https://github.com/SEU_USUARIO/SEU_REPOSITÓRIO.git .
 
 ```
 
-- Não esqueça do **espaço+ponto final**, sem ele o comando não funciona corretamente 
+- Não esqueça do espaço+ponto final, sem ele o comando não funciona corret
