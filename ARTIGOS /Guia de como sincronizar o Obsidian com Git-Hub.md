@@ -30,4 +30,5 @@ Depois em **"Personal access tokens "** e em seguida em **"Tokens classic"**
 ![](screenshot-2025-11-08-121335.jpeg)
 
 Agora em **"Generate new token"** e em seguida em **"Gnerate new token (classic)"**
+
 ![](screenshot-2025-11-08-121709.jpeg)
