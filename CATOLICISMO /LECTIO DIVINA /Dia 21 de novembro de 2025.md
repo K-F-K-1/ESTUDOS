@@ -17,4 +17,5 @@ Ele é a verdade, pois todo o resto é passageiro e vaidoso, é uma ilusão: ben
 Ele é a vida, pois a suprema Vocação do homem é viver as virtudes de Deus, para Deus, aí está a vida, é assim que a ganhamos verdadeiramente!
 
 *"A onde iremos Senhor? Só tu tens palavras de vida Eterna!"* 
+
 ![](https://i.pinimg.com/736x/40/42/f2/4042f265b4af6064820d2b82173b7ebb.jpg)
