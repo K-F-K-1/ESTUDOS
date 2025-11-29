@@ -1,0 +1,13 @@
+## | Introdução Messiânica  | São Marcos 1-2       | Salmo 11  
+
+
+### Mc 1,14-15| Jesus anuncia a Boa-Nova de Deus
+
+Jesus é a luz do mundo, Cristo é a esperança encarnada, eu mesmo já li vários quadrinhos, já vi inúmeros filmes, já consumi várias histórias, todas elas frutos de corações que anseiam por um salvador mas oque não se dão conta é que ele é real e já veio: Jesus Cristo de Nazaré, Ele é nosso salvador, nosso resgate, nosso único e verdadeiro super-herói das nossas horas mais sombrias.
+
+Jesus, como diz o Catecismo, revela através do seu ministério e do seu exemplo a verdadeira vocação do homem, aquilo que quando ele quer, o completa e a dá a ele a liberdade de viver livremente: amar a Deus. O anúncio do reino de Deus e do evangelho por Jesus é um dos maiores eventos da história, pois com ele vem a Boa nova de que o "Reino de Deus está próximo ". Apesar do também enfoque escatológico a respeito do fim dos tempos , gostaria de enfatizar um aspecto tão essencial quanto, a realidade do aqui e agora do Reino de Deus.
+
+Todos aqueles que praticam as virtudes e princípios do reino de coração sincero e fiel , experimentam aqui no plano terreno ainda as maravilhas da Israel Celeste, quanto mais santo um santo é mais santo ele quer ser, ou você já viu algum santo infeliz ? não é atoa, pois aqui e agora as maravilhas de Deus e de seu reino já estão operando no nosso mundo desde a vinda do messias. Os milagres que Cristo fez foi a forma tangível e inconfundível da ação ativa e cuidadora de Deus na terra para com seu povo, especialmente os mais esquecidos pela sociedade. Pois o Bom pastor não esquece nem se descuida de nenhuma de suas ovelhas , nunca. Através de uma conversão sincera, reta e fiel, Deus concede através de sua misericórdia os alívios da alma, dos fardos, dos nossos males mais insistentes, pois a paz e a virtude são boas e até o coração mais pecador reconhece isso, mesmo que não admita publicamente. O Reino de Deus está próximo pois o Senhor está a distância de uma confissão bem feita , de alguns minutos restantes antes da hora de comungar, de um terço bem rezados e do desejo suplicante da conversão para si e para pros outros. O reino de Deus está aqui e aguarda pelos seus muitos santos, cada um de nós tem um lugar no banquete celeste, está a distância do reconhecimento e arrependimento dos nossos pecados, Deus está aqui e é paciente e piedoso no julgamento, Ele não desampara nenhum de seus filhos, não importa o tamanho de seu pecado nem a quantas vezes ele foi cometido, nada no mundo pode sub-julgar o amor de Deus. Por que Ele é perfeito, um pai perfeito.
+
+Oque há de mais perfeito do que isso? do amor incondicional ? 
+
